@@ -1,4 +1,4 @@
-## Hi there 👋
+## Renown Studios
 about the company!
 
 who are we?
